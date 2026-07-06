@@ -4,6 +4,8 @@ Humanity has fundamentally misunderstood the structure of nature. All life on Ea
 
 A Clear, Detailed, Science-Based Explanation (English Version)**
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/M6J122N2K2)
+
 Humanity has fundamentally misunderstood the structure of nature.
 All life on Earth is built on circulation, not on linear cause and effect.
 This is something taught in basic science and biology in middle school, yet modern society and even many scientists overlook it.
